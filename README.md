@@ -7,3 +7,5 @@
 * Equanimity without ego
 * Attention without judgement
 * Conviction without attachment
+
+Repetition is how we learn everything.
